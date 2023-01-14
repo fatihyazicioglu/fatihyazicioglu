@@ -1,7 +1,8 @@
 
 - 👀 there is no better way to learn than working on challenges..
 - ✨ looking for a new challenge and working on exciting projects...
-
+-  :guitar:  	:musical_note: :musical_score: :headphones: :musical_keyboard: :saxophone: :soccer: :computer: :keyboard:
+ 
   [XING](https://www.xing.com/profile/Fatih_Yazicioglu4/portfolio)
 
 
